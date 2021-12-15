@@ -1,4 +1,4 @@
-# About Me #
+# About Ivan #
 
 Hi, I’m Ivan Richmond.
 
