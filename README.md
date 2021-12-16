@@ -10,4 +10,5 @@ I'm not currently looking to collaborate on anything, but I may in the future.
 
 You can reach me at irichmond@yahoo.com
 
+**ADDING THIS**
 
